@@ -2,4 +2,4 @@
 - 👀 I’m interested in software development 
 - 🌱 I’m currently learning frontend development 
 - 💞️ I’m looking to collaborate on frontend projects 
-- 📫 How to reach me https://www.linkedin.com/in/bashir-mustapha 
+- 📫 How to reach me :(https://www.linkedin.com/in/bashir-mustapha-62929a22b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
